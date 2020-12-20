@@ -1,0 +1,1 @@
+# Stricks1.github.io
